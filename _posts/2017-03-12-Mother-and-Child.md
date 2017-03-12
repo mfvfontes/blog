@@ -10,7 +10,7 @@ categories: Poetry
 Thy honor whose greatness is disgrace,<br/>
 hou child, thou to whom shall flatter!
 
-Might is be seen, to see is to get pace.
-Crawl way to pursue, crooked to shatter.
-Shall mother's breast be as honoured great
+Might is be seen, to see is to get pace. <br/>
+Crawl way to pursue, crooked to shatter. <br/>
+Shall mother's breast be as honoured great <br/>
 As fire of thy blood reigned from thy trait.
