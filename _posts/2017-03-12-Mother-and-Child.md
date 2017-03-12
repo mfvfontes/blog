@@ -8,8 +8,7 @@ categories: Poetry
 ---
 
 Thy honor whose greatness is disgrace,<br/>
-hou child, thou to whom shall flatter!
-
+Thou child, thou to whom shall flatter!<br/>
 Might is be seen, to see is to get pace. <br/>
 Crawl way to pursue, crooked to shatter. <br/>
 Shall mother's breast be as honoured great <br/>
