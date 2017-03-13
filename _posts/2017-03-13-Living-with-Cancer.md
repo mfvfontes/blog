@@ -7,4 +7,4 @@ external-url:
 categories: Life
 ---
 
-> When you come to the end of your rope, tie a knot and hang on.
+> When you come to the end of your rope, tie a knot and hang on. - Franklin D. Roosevelt
