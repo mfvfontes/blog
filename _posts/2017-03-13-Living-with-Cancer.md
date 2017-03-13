@@ -7,6 +7,6 @@ external-url:
 categories: Life
 ---
 
-> When you come to the end of your rope, tie a knot and hang on. - Franklin D. Roosevelt
+> When you come to the end of your rope, tie a knot and hang on. – Franklin D. Roosevelt
 
 For the past few weeks we've been struggling to find ways to say goodbye.
