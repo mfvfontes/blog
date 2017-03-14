@@ -9,7 +9,7 @@ categories: Life
 
 > Sometimes life is going to hit you in the head with a brick. Don't lose faith. – Steve Jobs
 
-I was never too close to my father. He practically spent his whole life working from 6AM to 8PM everyday and the only time that I could see him was on Sundays. And even then, he wanted to rest to get ready for the next week. Therefore, our relationship was not as close it should be, since he could not be present. This was true till a few years ago when he got unemployed. He started spending a lot of time at home, but I was already 18 years old and the attention that I needed was far less than when I was a child.
+I was never too close to my father. He practically spent his whole life working from 6AM to 8PM everyday and the only time that I could see him was on Sundays. And even then, he wanted to rest to get ready for the next week. Therefore, our relationship was not as close as it should be, since he could not be present. This was true till a few years ago when he got unemployed. He started spending a lot of time at home, but I was already 18 years old and the attention that I needed was far less than when I was a child.
 
 Eventually he started working again, but his job required a lot of effort from him. When he arrived home everyday he coughed a lot, but since he had been a smoker for a long time and this was usual, there was nothing to fear. Things got worse overtime and he decided to go to the hospital where he had a CT scan. At that time I got a little confused about him having a CT scan, instead of a regular X-Ray, but I didn't question myself too much. Some days passed till the day when I arrived from school and my mother told me he was heavily ill.
 
